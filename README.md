@@ -1,2 +1,2 @@
 # co-kitch
-Hi there, my name is dimi
+Hi there
