@@ -1,9 +1,2 @@
 # co-kitch
-
-
-mnogo mi e interesno xdxd
-
-changed
-resolved 
-
-I love my mom
+Hi there, my name is dimi
